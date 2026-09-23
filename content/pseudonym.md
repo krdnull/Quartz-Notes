@@ -1,6 +1,6 @@
 \---
 
-pseudonym
+title: Pseudonym
 
 \---
 
