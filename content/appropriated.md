@@ -1,6 +1,6 @@
 \---
 
-Title: Appropriated
+title: Appropriated
 
 \---
 
