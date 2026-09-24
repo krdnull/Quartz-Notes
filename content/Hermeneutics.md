@@ -1,0 +1,3 @@
+Friedrich [[Schleiermacher]] is considered the progenitor of general [[hermeneutics]]. This was then developed further by Wilhelm [[Dilthey]], Martin [[Heidegger]], and Hans-Georg [[Gadamer]], moving through [[history]] toward [[ontology]].
+
+Anton Wilhelm [[Amo]], many years prior to [[Schleiermacher]], formulated general [[hermeneutics]] in his *Tractatus de arte sobrie et accurate philosophandi*, which was translated into English in 1968.
