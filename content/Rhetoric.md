@@ -1,0 +1,13 @@
+[[Rhetoric]] is not merely my degree; it is my profession, but it is not my [[identity]].
+
+I was brought up in the [[classical]] tradition of [[rhetoric]]: Start with the Greeks ([[Plato]], [[Aristotle]], and the [[Sophists]]). Next, the Romans ([[Cicero]], [[Seneca]], and [[Quintilian]]). Followed, by the [[dark ages]] highlighting normally only the work of Petrus [[Ramus]] who is the fulcrum where [[speech]] became secondary to [[writing]], easily the most important rhetorician if we are judging simply by the sea change that occurred in the [[glory]] of his wake.
+
+After, we have the rise of the textbook rhetoricians: George [[Campbell]] and Richard [[Whately]], and normally capping if all off with the work of Kenneth [[Burke]] who has been placed by some in the same discussion as [[Aristotle]] regarding importance. Then, it becomes a mishmash depending on who the professor was in your class. My professor, and advisor was, Barry [[Thatcher]], so I ended up with a combo of [[intercultural rhetoric]], his specialty, [[contrastive rhetoric]] from Robert B. [[Kaplan]], and a general rhetoric from the work of Jim. W. [[Corder]].
+
+[[Thatcher]] was influenced by his instructor James A. [[Berlin]], which means so was I. Further, due to Thatcher's influence, I added the [[structural marxism]] of Louis [[Althusser]] and the [[capability approach]] of Amartya [[Sen]]. On my own, I then added the [[critical race theory]] of Derrick A. [[Bell]], the [[critical compassionate pedagogy]] of Richie Neil [[Hao]], [[laissez faire]] [[un-grading]] or [[ungrading]] formulated by me, as well as further [[pedagogy]] drawn from taking classes with Michael [[Sullivan]] and Christopher [[Burnham]].
+
+This is all grounded in both [[hermeneutics]] built from the work of [[Heidegger]], [[Gadamer]], [[Heraclitus]], [[Martin Luther King Jr]], Rene [[Geanellos]], Brian [[Lightbody]], and Michel [[Foucault]], as well as [[phenomenology]] built on the backs of [[Heidegger]] and [[Fanon]]. 
+
+Below, the subject, where [[dignity]], [[freedom]], [[justice]], [[understanding]], [[compassion]], [[love]], [[difference]], and [[self-regard]] play core roles. Here, Toni [[Morrison]], Audre [[Lorde]], Kenneth [[Burke]], and [[black feminism]], in general, can be added to the litany of voices already present.
+
+And near the core, but not the core itself, the year 1995, where I came into contact with Robert [[Bly]] in *A Gathering of Men*, with Samuel [[Beckett]] in *Waiting for Godot*, with Eugene [[Ionesco]] in *The Chairs*, with Stephen [[King]] in *Needful Things*, and Martin [[Heidegger]] in *Being and Time*.
