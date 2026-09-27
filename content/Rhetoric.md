@@ -10,4 +10,4 @@ This is all grounded in both [[hermeneutics]] built from the work of [[Heidegger
 
 Below, the subject, where [[dignity]], [[freedom]], [[justice]], [[understanding]], [[compassion]], [[love]], [[difference]], and [[self-regard]] play core roles. Here, Toni [[Morrison]], Audre [[Lorde]], Kenneth [[Burke]], and [[black feminism]], in general, can be added to the litany of voices already present.
 
-And near the core, but not the core itself, the year 1995, where I came into contact with Robert [[Bly]] in *A Gathering of Men*, with Samuel [[Beckett]] in *Waiting for Godot*, with Eugene [[Ionesco]] in *The Chairs*, with Stephen [[King]] in *Needful Things*, and Martin [[Heidegger]] in *Being and Time*.
+And near the core, but not the core itself, the year 1995, where I came into contact with Robert [[Bly]] in *A Gathering of Men*, with Samuel [[Beckett]] in *Waiting for Godot*, with Eugene [[Ionesco]] in *The Chairs*, with Stephen [[King]] in *Needful Things*, and Martin [[Heidegger]] in *Being and Time* at the Helen Plum Library in [[Lombard]], [[Illinois]].
