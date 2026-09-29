@@ -1,0 +1,5 @@
+[[Willowbrook]] High School was located in [[Villa Park]], and even though I lived in [[Lombard]] - the high school was right down the street, so it was the one I attended, but I didn't even attend for a year, but the impact, on me, of that brief attendance was huge, as it is the foundation of my [[pedagogy]] (I've been a [[professor]] for over half a decade now).
+
+I took an [[English]] class with Michael [[Sullivan]] wherein we kept a travel journey of our imagined trip of the United States - it was almost a [[rhetoric]] of the [[road]]. I recall you'd get extra credit for making literary connecting links like with John [[Steinbeck]] and Gary [[Sinise]]. 
+
+The walls of his classroom were a massive collage, as were the journals we constructed. It is the class I've been trying to run ever since I first took it, but I ended up in [[technical communication]] rather than [[composition]] or [[rhetoric]], so that has sort of cramped my style, but I've recently begun a shift into [[creative nonfiction]], specifically [[autoethnography]] and [[poetic inquiry]], so the door is opening again (not by accident, of course).
