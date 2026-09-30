@@ -1,4 +1,4 @@
-[[Appropriation]], in art, but also in general, is making use of material that already exists and putting it forth as your own.
+Appropriation, in art, but also in general, is making use of material that already exists and putting it forth as your own.
 
 Marcel [[Duchamp]] most famously, or infamously, did by in the creation of his work *Fountain*, which was a common, normal, public urinal. This was then famously, or infamously, reappropriated by Sherrie [[Levine]].
 
