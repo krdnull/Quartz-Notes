@@ -1,4 +1,4 @@
-A [[pseudonym]] is a fake or false name that a person selects for themselves, often, for [[representational]] purposes.
+A pseudonym is a fake or false name that a person selects for themselves, often, for [[representational]] purposes.
 
 For example, Richard [[Bachman]] is a pseudonym of Stephen [[King]].
 
