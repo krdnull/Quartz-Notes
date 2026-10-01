@@ -4,16 +4,16 @@ Third, there is a forest.
 Then, there is the [[portal]].
 
 Fourth, there is a [[parking lot]].
-Fifth, there is the [[sidewall]] to nowhere.
-Sixth, there is dentist's office.
+Fifth, there is the [[sidewalk]] to nowhere.
+Sixth, there is a dentist's office.
 Then, there is the [[road]].
 
-Seventh, there is the [[strip mall]].
+Seventh, there is a [[strip mall]].
 Eighth, there was the [[record store]].
-Ninth, there was the [[bowling alley]].
+Ninth, there was a [[bowling alley]].
 Then, there is the university. 
 
 Tenth, there is the [[stair sets]].
-Eleventh, there is the [[loading dock]].
-Twelfth, there is the [[bicycle rack]],
+Eleventh, there is a [[loading dock]].
+Twelfth, there is a [[bicycle rack]],
 Finally, there is [[Enchanted Castle]].
