@@ -4,4 +4,4 @@ For a time, I think we used to go there not quite on an annual basis but near to
 
 My family eventually got a cabin in [[Oxford]], [[Wisconsin]], and we would go there for the summer. On the block in which we lived there were two other Kevins: Kevin von Ebers and Kevin Wallis, and, I believe, they both had older sisters named Katie. I believe Wallis was from [[Hampshire]], and the other from [[Oak Park]] or [[Chicago]]. I did visit, once, the one who lived in Oak Park or Chicago, although, I was invited to both, but we were really just summer chums who happened to share a name and vacation on the same block.
 
-Such [[halycon]] days.
+Such [[halcyon]] days.

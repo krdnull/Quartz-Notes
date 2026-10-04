@@ -6,4 +6,4 @@ Jazz band is where I first heard Smells Like Teen Spirit by [[Nirvana]], off the
 
 I, of course, picked up my copy at [[CD Trader]] in [[Lombard]], my one-stop [[record store]].
 
-Such [[halycon]] days.
+Such [[halcyon]] days.
