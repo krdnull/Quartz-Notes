@@ -1,0 +1,3 @@
+What [[names]] do I [[remember]], and why do I remember those names and others, and why do I only remember some names partially? I write the names down because I am trying to remember, but I don't know what I am trying to remember nor do I want to return to the past, so why do I write the names down? 
+
+Some of the names are full-bodied, but there are some full bodies that I don't know the names of, for instance, I can recall the full body of the person who introduced me to the [[Insane Clown Posse]], in fact, I can even recall where they lived, but I have no idea what their [[name]] is - I [[wonder]] why that is.
